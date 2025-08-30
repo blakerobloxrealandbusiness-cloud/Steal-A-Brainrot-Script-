@@ -1,2 +1,1 @@
-# Steal-A-Brainrot-Script-
-Steal a Brainrot scripts!
+Disclamer: These are real Steal a Brainrot scripts that can lead to a copyright claim on Roblox, use this at your own risk!
